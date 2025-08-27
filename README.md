@@ -1,0 +1,1 @@
+# Adobe-Photoshop-Full-Version-Full-Version
